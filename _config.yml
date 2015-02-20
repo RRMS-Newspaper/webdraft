@@ -1,8 +1,8 @@
 # Site settings
-title: "Rosemont Ridge Middle School Newspaper"
+title: "Coyote Columns"
 description: "slogan here"
 baseurl: ""
-url: "rrmsnewspaper.github.com"
+url: "coyotecolumns.github.com"
 
 # Build settings
 markdown: kramdown
