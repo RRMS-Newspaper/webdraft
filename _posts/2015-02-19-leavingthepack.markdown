@@ -26,7 +26,7 @@ After a few minutes, my mom nudged me. I turn around to see my dad's body, torn 
 
 "I can't stay. Not now. Not with them. I need to leave." The words spilled out of my mouth like an overflowing waterfall. I turned and ran, fast and strong, like it was all I'd ever known.
 
-10 years later â€“ Present Day
+10 years later - Present Day
 
 I awake from my deep sleep to a noise coming from outside my small den. My ears prick up, and I wish my mom were here to protect me. Don't get me wrong, I may look and be strong and fierce, but deep inside I still miss my mom and my best friend Lydia like crazy.
 
